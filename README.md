@@ -11,4 +11,5 @@
 ## 🌆 Я есть в:
 - [Steam](https://steamcommunity.com/id/dimanyofficial/)
 - [Discord](https://discordapp.com/users/756814599864582184/)
-- [Telegram](https://t.me/amogusgang)
+- [Telegram](https://t.me/dimanyset)
+- [VK](https://vk.com/dimanyset)
